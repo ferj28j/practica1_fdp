@@ -1,0 +1,1 @@
+práctica 1 de fundamentos de programación para el conocimiento de diversos sitios academicos y navegadores como consultores de información, las inteligencias artificiales como herramientas de estudio y la utilidad de un repositorio 
